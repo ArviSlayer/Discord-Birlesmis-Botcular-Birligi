@@ -51,19 +51,20 @@
 # lulushu#7777
  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Karicimdir kendisi, her gece gönlümü hoş eder. Anca hazır alt yapı kullanır şaka şaka. Paran varsa bu adam en iyisi
 
-[![Discord Presence](https://lanyard-profile-readme.vercel.app/api/379179073382907908?hideDiscrim=true)](https://discord.com/users/379179073382907908)
-
-#
-
-# piku#0001
- ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Sürekli karı pp-banner koyan sanal mafyaci, gördüğüm en başarılı sanal mafya ama. Yazılı konusunda da iyi, hem afya hem yazılımcı daha ne olsun
-
 [![Discord Presence](https://lanyard-profile-readme.vercel.app/api/852103749228036136?hideDiscrim=true)](https://discord.com/users/852103749228036136)
 
 #
 
+# piku#0001
+ ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Sürekli karı pp-banner koyan sanal mafyaci, gördüğüm en başarılı sanal mafya. Yazılım konusunda da iyi, hem mafya hem yazılımcı daha ne olsun. All in one, yeme de yanında yat 
 
-## EN (EZIK) BOTÇULAR 🤣
+[![Discord Presence](https://lanyard-profile-readme.vercel.app/api/331878061954039808?hideDiscrim=true)](https://discord.com/users/331878061954039808)
+
+#
+
+
+
+## EN (ASALAK) BOTÇULAR 😀
 
 # Ramal. ☆#1710 (Intecır Gonzales)
  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ DJS bilmeyen, salladığı kişinin altyapılarını kullanan eziğin teki. Sese gelip yayında kod yazamıyor daha botçuyum diye hazır altyapılarla geziyor ortada UFWEHUIFGHWEIOGJWEIO. Intecır gonzales, aynen kanki Int'le hız olur JOHFEHUIWEFGJIKOSDFG
@@ -75,15 +76,14 @@ https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083
 ![image](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/5dea282f-d9ad-4002-bca3-ec698ea1dc94)
 
 **2-)**
-![image](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/30376aea-ce75-42ab-88db-7c0773bd9c00)
-
-**3-)**
 ![Screenshot_1](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/2095bebc-877a-4ed1-90a4-c71da1d4d436)
 
-**4-)**
+**3-)**
+
 ![image](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/a9d13bdd-261f-474a-ad04-5218fef88f27)
 
-**5-)**
+**4-)**
+
 ![image](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/c519c1b9-77cb-4e96-a660-392ec5fc4b0a)
 
 
