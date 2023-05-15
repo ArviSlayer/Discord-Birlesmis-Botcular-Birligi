@@ -1,63 +1,73 @@
 # Approval.#0001
- ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Her türlü botu yapar he, işinde 10 numra 5 yıldız
-![image](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/ab139e6c-f8ed-441e-92dd-4090d344f60a)
+ ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Her türlü botu yapar he, işinde 10 numara 5 yıldız. Çok bilmiş 🤓
+
+[![Discord Presence](https://lanyard-profile-readme.vercel.app/api/852800814808694814?hideDiscrim=true)](https://discord.com/users/852800814808694814)
 
 #
 
 # ArviS#0011
- ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Bu adam içine kapanaık ve publarla işi olmaz, kendi halinde öylesine bot mot kod yapar kendisine çok aşığım
-![image](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/7714a864-7e9c-4310-beab-36575402c460)
+ ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Bu adam içine kapanık ve publarla işi olmaz, kendi halinde öylesine bot mot kod yapar kendisine çok aşığım
+
+[![Discord Presence](https://lanyard-profile-readme.vercel.app/api/379179073382907908?hideDiscrim=true)](https://discord.com/users/379179073382907908)
 
 #
 
 # Beş#0005
  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Nickini bi asal sayıdan alan elemanın teki. Bazen bunun yüzünden intihar etsem mi diye düşünmeden edemiyorum üstüme çok geliyo. Approval olmasa hiçbir şey bilmez şaka şaka 🥹
-![image](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/7b528892-0706-4550-baf3-d0e00400fedb)
+
+[![Discord Presence](https://lanyard-profile-readme.vercel.app/api/928259219038302258?hideDiscrim=true)](https://discord.com/users/928259219038302258)
 
 #
 
 # Crané?#1927
- ឵ ឵ ឵ ឵ ឵  ឵ ឵➥ bukimamk
-![image](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/5696a4b6-bdc1-4912-af01-30d09711026c)
+ ឵ ឵ ឵ ឵ ឵  ឵ ឵➥ Öz vincim Crane
+
+[![Discord Presence](https://lanyard-profile-readme.vercel.app/api/587564522009788426?hideDiscrim=true)](https://discord.com/users/587564522009788426)
 
 #
 
 # ertu#1976
  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Kendi earlysi olmamasına rağmen yeni rozet bekleyip 6 rozet olma hayali kuran artu. Daha junior ya gelişiyor 😃
-![image](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/f01facc8-d6ab-4967-80f4-73b0eaaab6f4)
+
+[![Discord Presence](https://lanyard-profile-readme.vercel.app/api/136619876407050240?hideDiscrim=true)](https://discord.com/users/136619876407050240)
 
 #
 
 # lethh#1976
  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Hayatımda bunun kadar Eris düşmanı bi insan görmedim 😡 Bot konusunda bilgili her türlü işi PARA karşılığında yapar. Para yoksa üşenir
-![image](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/760cd83a-8510-4e16-9224-4acd6aed62a5)
+
+[![Discord Presence](https://lanyard-profile-readme.vercel.app/api/797096076330795018?hideDiscrim=true)](https://discord.com/users/797096076330795018)
 
 #
 
 # luhux#1337
- ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Animecinin teki, bot yaparken çok sinirleniyo ama olsun mükemmel yapıyo
-![image](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/7ebfb242-64dd-455d-8b00-56b114cbdcbd)
+ ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Animecinin teki, kimseyi siklemiyo. Tasarım konusunda mukemmel
+
+[![Discord Presence](https://lanyard-profile-readme.vercel.app/api/341592492224806914?hideDiscrim=true)](https://discord.com/users/341592492224806914)
 
 #
 
 # lulushu#7777
  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Karicimdir kendisi, her gece gönlümü hoş eder. Anca hazır alt yapı kullanır şaka şaka. Paran varsa bu adam en iyisi
-![image](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/84d1cf04-6275-4d5c-b709-13a810ae1e1c)
+
+[![Discord Presence](https://lanyard-profile-readme.vercel.app/api/379179073382907908?hideDiscrim=true)](https://discord.com/users/379179073382907908)
 
 #
 
 # piku#0001
  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Sürekli karı pp-banner koyan sanal mafyaci, gördüğüm en başarılı sanal mafya ama. Yazılı konusunda da iyi, hem afya hem yazılımcı daha ne olsun
-![image](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/c698a66b-533e-477f-9ffc-a89bf9dbd4f7)
+
+[![Discord Presence](https://lanyard-profile-readme.vercel.app/api/852103749228036136?hideDiscrim=true)](https://discord.com/users/852103749228036136)
 
 #
 
 # Ramal. ☆#1710
  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Intecır gonzales
 
+[![Discord Presence](https://lanyard-profile-readme.vercel.app/api/962417173043753022?hideDiscrim=true)](https://discord.com/users/962417173043753022)
+
+
 https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/b5c4f55a-0b0f-41ab-ad13-d8204bfb46f6
-
-
 
 ![image](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/30376aea-ce75-42ab-88db-7c0773bd9c00)
 
