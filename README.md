@@ -1,4 +1,4 @@
-# Approval.#0001
+**Approval.#0001**
  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Her türlü botu yapar he, işinde 10 numra 5 yıldız
 ![image](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/ab139e6c-f8ed-441e-92dd-4090d344f60a)
 
