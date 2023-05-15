@@ -54,7 +54,10 @@
 
 # Ramal. ☆#1710
  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Integer gonzales
-https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/59d6207a-dadf-4ad6-8e9d-c983bc2a8462
+
+https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/b5c4f55a-0b0f-41ab-ad13-d8204bfb46f6
+
+
 
 ![image](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/30376aea-ce75-42ab-88db-7c0773bd9c00)
 
