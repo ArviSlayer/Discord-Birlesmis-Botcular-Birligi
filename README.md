@@ -2,7 +2,7 @@
 
 ## Approval.#0001
  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Her türlü botu yapar he, işinde 10 numara 5 yıldız. Çok bilmiş 🤓 ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵ 
- ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵឵➥ [Luppux](https://discord.gg/luppux) - [Approval Github](https://github.com/Approval-Denial)
+ ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵឵឵➥ [Luppux](https://discord.gg/luppux) - [Approval Github](https://github.com/Approval-Denial)
  
 [![Discord Presence](https://lanyard-profile-readme.vercel.app/api/852800814808694814?hideDiscrim=true)](https://discord.com/users/852800814808694814)
 
