@@ -1,11 +1,11 @@
-**Approval.#0001**
+# Approval.#0001
  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Her türlü botu yapar he, işinde 10 numra 5 yıldız
 ![image](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/ab139e6c-f8ed-441e-92dd-4090d344f60a)
 
 #
 
 # ArviS#0011
- ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Bu adam içine kapanaık ve publarla işi olmaz, kendi halinde öylesine bot mot kod yapar
+ ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Bu adam içine kapanaık ve publarla işi olmaz, kendi halinde öylesine bot mot kod yapar kendisine çok aşığım
 ![image](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/7714a864-7e9c-4310-beab-36575402c460)
 
 #
@@ -14,8 +14,10 @@
  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Nickini bi asal sayıdan alan elemanın teki. Bazen bunun yüzünden intihar etsem mi diye düşünmeden edemiyorum üstüme çok geliyo. Approval olmasa hiçbir şey bilmez şaka şaka 🥹
 ![image](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/7b528892-0706-4550-baf3-d0e00400fedb)
 
+#
+
 # Crané?#1927
- ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ bukimamk
+ ឵ ឵ ឵ ឵ ឵  ឵ ឵➥ bukimamk
 ![image](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/5696a4b6-bdc1-4912-af01-30d09711026c)
 
 #
