@@ -1,6 +1,6 @@
 #  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵឵឵឵LUPPUX TEAM 🥵 ( [Luppux](https://discord.gg/luppux) )
 
-## Approval.#0001 [Approval Github](https://github.com/Approval-Denial)
+## Approval.#0001 -> ( [Approval Github](https://github.com/Approval-Denial) )
  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Her türlü botu yapar he, işinde 10 numara 5 yıldız. Çok bilmiş 🤓
 
 [![Discord Presence](https://lanyard-profile-readme.vercel.app/api/852800814808694814?hideDiscrim=true)](https://discord.com/users/852800814808694814)
