@@ -1,3 +1,4 @@
+## EN (ŞİRİN) BOTÇULAR 🤗
 # Approval.#0001
  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Her türlü botu yapar he, işinde 10 numara 5 yıldız. Çok bilmiş 🤓
 
@@ -61,15 +62,32 @@
 
 #
 
-# Ramal. ☆#1710
- ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Intecır gonzales
 
-[![Discord Presence](https://lanyard-profile-readme.vercel.app/api/962417173043753022?hideDiscrim=true)](https://discord.com/users/962417173043753022)
+## EN (EZIK) BOTÇULAR 🤣
 
+# Ramal. ☆#1710 (Intecır Gonzales)
+ ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ DJS bilmeyen, salladığı kişinin altyapılarını kullanan eziğin teki. Sese gelip yayında kod yazamıyor daha botçuyum diye hazır altyapılarla geziyor ortada UFWEHUIFGHWEIOGJWEIO. Intecır gonzales, aynen kanki Int'le hız olur JOHFEHUIWEFGJIKOSDFG
 
 https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/b5c4f55a-0b0f-41ab-ad13-d8204bfb46f6
 
+
+**1-)**
+![image](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/5dea282f-d9ad-4002-bca3-ec698ea1dc94)
+
+**2-)**
 ![image](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/30376aea-ce75-42ab-88db-7c0773bd9c00)
+
+**3-)**
+![Screenshot_1](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/2095bebc-877a-4ed1-90a4-c71da1d4d436)
+
+**4-)**
+![image](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/a9d13bdd-261f-474a-ad04-5218fef88f27)
+
+**5-)**
+![image](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/c519c1b9-77cb-4e96-a660-392ec5fc4b0a)
+
+
+
 
 
 
