@@ -75,6 +75,14 @@
 
 #  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵឵឵឵EN (ŞİRİN) BOTÇULAR ❤️
 
+## Zack#7802 -> ( [Zack GitHub](https://github.com/Zackiycik) )
+ ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Sadece Discord botu yapmıyo he, elinden her iş ve yazılım dili gelir. Efso projeleri var paylaşmadığı. Adeta bir dahi dötünü yedigim.
+
+[![Discord Presence](https://lanyard-profile-readme.vercel.app/api/836636146485952602?hideDiscrim=true)](https://discord.com/users/836636146485952602)
+
+#
+#
+
 ## Just1N#0057 -> ( [Just1N YouTube](https://www.youtube.com/channel/UCD9NPfM1bMer1amerPRPhaA) )
  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Yazılıma ve bot geliştirmeye yeni başlamış birisi, öğrencim olur kendileri :D. Elimden geldiğince yardımcı olmaya çalışıyorum. Çok azimli ve hırslı bu konularda. İyi yerlere geleceğinden eminim.
 
