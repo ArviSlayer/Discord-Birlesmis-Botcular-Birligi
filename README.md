@@ -99,6 +99,14 @@
 #
 #
 
+## Just Nyde#2535 -> ( [Just Nyde GitHub](https://github.com/justnyde) )
+ ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Discord bot işini harbiden çözmüş bir şahıs ve/veya şahısımsı varlık. Kendisine güvenim sonsuz, kurşun atar kurşun yerim Nyde'm için. 🤍
+
+[![Discord Presence](https://lanyard-profile-readme.vercel.app/api/642752306441617417?hideDiscrim=true)](https://discord.com/users/642752306441617417)
+
+#
+#
+
 
 #  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵឵឵឵EN (ASALAK) BOTÇULAR 😀
 
