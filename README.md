@@ -92,7 +92,7 @@
 #
 
 ## †Symphonie#1745 -> ( [†Symphonie GitHub](https://github.com/Symphonieeee) )
- ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Çok az bilgisi olsa da azimli, yeteneği olan birisi Benden sistem dilense de, götün teki olsa da iyi çocuk. Bundan sakın sistem almayın. Ramal'dan daha yetenekli 😃
+ ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Çok az bilgisi olsa da azimli, yeteneği olan birisi Benden sistem dilense de, götün teki olsa da iyi çocuk. Bundan sakın sistem almayın, şaka la şaka. Ramal'dan daha yetenekli 😃
 
 [![Discord Presence](https://lanyard-profile-readme.vercel.app/api/1088119765375139982?hideDiscrim=true)](https://discord.com/users/1088119765375139982)
 
