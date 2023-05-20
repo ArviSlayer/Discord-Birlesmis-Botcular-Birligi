@@ -107,6 +107,14 @@
 #
 #
 
+## ravgar#0001 -> ( [ravgar GitHub](https://github.com/ravgar) )
+ ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Yeni sistemlerde çağ açmış, kendi açtığı çağları bile kapatıp yeni çağlar açmış paradoksların adamı. Kadim domstum 😗
+
+[![Discord Presence](https://lanyard-profile-readme.vercel.app/api/1049727678091120640?hideDiscrim=true)](https://discord.com/users/1049727678091120640)
+
+#
+#
+
 
 #  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵឵឵឵EN (ASALAK) BOTÇULAR 😀
 
