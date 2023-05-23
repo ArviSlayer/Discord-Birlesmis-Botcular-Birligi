@@ -208,7 +208,7 @@ https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083
 ![Screenshot_11](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/5b99d484-e05b-460b-b4fc-9cdd1a4a0f6e);
 
 
-**12-)**
+**12-) [Burada güya "siber suçların içinden" bir fotoğraf atıp siliyor, o yüzden ismimi ve yaşadığım yeri söylersin dedim]**
 
 ![Screenshot_12](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/9d50942c-7b64-4571-931e-1c57a2f0b74f)
 
