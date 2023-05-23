@@ -159,8 +159,8 @@ https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083
 
 
 **2-)**
-![Screenshot_2](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/b15083cf-641e-4fb2-8d6f-1474638040b7)
 
+![Screenshot_2](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/b15083cf-641e-4fb2-8d6f-1474638040b7)
 
 
 **3-)**
@@ -223,8 +223,15 @@ https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083
 ![Screenshot_15](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/e72a7f43-59c5-4f54-8621-0df6b2e47859)
 
 
-**15-)** 
+**15-) [Burada göt oluyor ve ticketı kapatıyor]**
+
 ![Screenshot_16](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/36e489cb-4b8a-4fc8-8270-95b3945bfdff)
+
+
+**16-) [Daha fazla dayanamayıp "topuklayarak" kaçıyor PUHAHAUDFHWEUIFHWEOI]** 
+
+![Screenshot_17](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/6b1c291a-8755-4a6f-8e5b-faa60507d834)
+
 
 
 
