@@ -127,10 +127,12 @@ https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083
 
 
 **1-)**
+
 ![image](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/5dea282f-d9ad-4002-bca3-ec698ea1dc94)
 
 
 **2-)**
+
 ![Screenshot_1](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/2095bebc-877a-4ed1-90a4-c71da1d4d436)
 
 
@@ -152,6 +154,7 @@ https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083
 
 
 **1-)**
+
 ![Screenshot_1](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/20e39633-dd02-4090-8f0e-1ab7a8c62eda)
 
 
@@ -161,47 +164,63 @@ https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083
 
 
 **3-)**
+
 ![Screenshot_3](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/9de65846-92c2-44b2-8af6-329444576775)
 
 
 **4-)**
+
 ![Screenshot_4](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/be485560-4c54-4fd7-85a5-426763dbaaae)
 
 
 **5-)**
+
 ![Screenshot_5](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/5ea599d6-87df-4403-b515-501d2cfe1673)
 
 
 **6-)**
+
 ![Screenshot_6](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/a4f1557d-499a-4eb7-a5b1-7466478e284a)
 
 
 **7-)**
+
 ![Screenshot_7](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/e22b9569-eede-4b33-aa2e-4bf8290fe394)
 
 
 **8-)**
+
 ![Screenshot_8](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/0f6a8106-3ca5-49e2-92dd-9bb7092028a8)
 
 
 **9-)**
+
 ![Screenshot_9](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/d9850237-eee9-4027-aa5c-0b8a6dbc24e6)
 
 
 **10-)**
+
 ![Screenshot_14](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/c5c7bc09-a6aa-40d5-90a0-a4f34a778c43)
 
 
 **11-)**
+
 ![Screenshot_11](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/5b99d484-e05b-460b-b4fc-9cdd1a4a0f6e);
 
 
 **12-)**
+
 ![Screenshot_12](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/9d50942c-7b64-4571-931e-1c57a2f0b74f)
 
 
 **13-)**
+
 ![Screenshot_13](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/e28d588a-cd87-4512-b8ab-4c6fb76e32b9)
+
+
+**14-)**
+![Screenshot_15](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/e72a7f43-59c5-4f54-8621-0df6b2e47859)
+
 
 
 
