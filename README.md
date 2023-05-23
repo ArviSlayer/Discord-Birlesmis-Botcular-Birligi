@@ -219,7 +219,14 @@ https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083
 
 
 **14-)**
+
 ![Screenshot_15](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/e72a7f43-59c5-4f54-8621-0df6b2e47859)
+
+
+**15-)** 
+![Screenshot_16](https://github.com/ArviSlayer/Discord-Birlesmis-Botcular-Birligi/assets/69751083/36e489cb-4b8a-4fc8-8270-95b3945bfdff)
+
+
 
 
 
