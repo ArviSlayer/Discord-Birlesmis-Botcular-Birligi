@@ -115,6 +115,14 @@
 #
 #
 
+## ✰ Weatrix?#8624 -> ( [Weatrix? GitHub](https://github.com/Weatrixcik) )
+ ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Çok taşak çocuk HUIEFHUIERGWHUI İnsanı gülmekten yardırır, aklı fikri sürekli ibnelikte-şakada 😀 Bot yap desen "Bot beni yapsın amk" diyecek adam. Geliştiriyor kendini daha <3
+
+[![Discord Presence](https://lanyard-profile-readme.vercel.app/api/1003950576800899083?hideDiscrim=true)](https://discord.com/users/1003950576800899083)
+
+#
+#
+
 
 #  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵ ឵ ឵  ឵ ឵឵឵឵EN (ASALAK) BOTÇULAR 😀
 
