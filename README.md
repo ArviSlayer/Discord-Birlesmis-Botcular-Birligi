@@ -69,6 +69,11 @@
 
 [![Discord Presence](https://lanyard-profile-readme.vercel.app/api/331878061954039808?hideDiscrim=true)](https://discord.com/users/331878061954039808)
 
+## Pudi#0001 -> ( [pudi GitHub](https://github.com/pudidev) )
+ ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Onaylı botum var aktif etmiyorum
+
+[![Discord Presence](https://lanyard-profile-readme.vercel.app/api/162740870607536128?hideDiscrim=true)](https://discord.com/users/162740870607536128)
+
 #
 #
 
