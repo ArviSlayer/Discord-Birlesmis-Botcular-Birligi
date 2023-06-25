@@ -99,7 +99,7 @@
 #
 #
 
-## pudiscool -> ( [Pudi GitHub]([https://github.com/Zackiycik](https://github.com/pudidev)) )
+## pudiscool -> ( [Pudi GitHub](https://github.com/pudidev) )
  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Salağın teki, kendisini hiç sevmem (gerçek) bazen s*kesim gelir (cuk ayip). Bir şeyler bildiğini sanır ama hiçbir şey bilmez 🤠 İşiniz düşmesin donunuza kadar alır.
 
 [![Discord Presence](https://lanyard-profile-readme.vercel.app/api/162740870607536128?hideDiscrim=true)](https://discord.com/users/162740870607536128)
