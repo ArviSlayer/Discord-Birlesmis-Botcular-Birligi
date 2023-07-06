@@ -99,6 +99,14 @@
 #
 #
 
+## takachidev -> ( [Takachi GitHub](https://github.com/Takachi-js) )
+ ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Elemanın teki bot yapmayı öğrenmiş kendine botçuyum demiş 🤣 Mesela yani. Kardeşim işinde gücünde iyidir, az deli olsa da güzel iş çıkartır. 
+
+[![Discord Presence](https://lanyard-profile-readme.vercel.app/api/594453895955349504?hideDiscrim=true)](https://discord.com/users/594453895955349504)
+
+#
+#
+
 ## pudiscool -> ( [Pudi GitHub](https://github.com/pudidev) )
  ឵ ឵ ឵ ឵ ឵  ឵ ឵ ឵➥ Salağın teki, kendisini hiç sevmem (gerçek) bazen s*kesim gelir (cuk ayip). Bir şeyler bildiğini sanır ama hiçbir şey bilmez 🤠 İşiniz düşmesin donunuza kadar alır.
 
